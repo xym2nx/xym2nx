@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ayman
 - 👀 I’m interested in Code
 - 🌱 I’m currently learning evreything about coding
-- 💞️ I’m looking to collaborate on everyone that love to learn in groups 
+- 💞️ I’m looking to collaborate with everyone that loves to learn in groups 
 - 📫 How to reach me https://t.me/XAYM2NX
 
 <!---
