@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ayman
 - 👀 I’m interested in Code
-- 🌱 I’m currently learning learng evreything about coding
+- 🌱 I’m currently learning evreything about coding
 - 💞️ I’m looking to collaborate on everyone that love to learn in groups 
 - 📫 How to reach me https://t.me/XAYM2NX
 
